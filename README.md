@@ -1,2 +1,2 @@
 # Minimal-Blog-Card
-Still Learning!
+Stil Learning! Keep Growing!
